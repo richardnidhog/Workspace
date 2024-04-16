@@ -1,0 +1,8 @@
+- Cornell University (Fall & Spring) No.12 CS M.Eng
+    - October 1, ($90), 2
+- University of Southern California (Fall & Spring) No.28
+    - September 1, $90
+- UIUC (Spring: PCS) No.35
+    - September 15, $90
+- Purdue University (Fall & Spring) No.43
+    - October 1, 2024, $75, English
